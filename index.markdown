@@ -74,6 +74,6 @@ Associated with Habitat
 ### PERSONAL DETAILS 
 
 Date of Birth			:	16-01-1965
-Present Address		:	D1-Fth 3 VGN Minerva, Nonlumbar, Chennai -600095
+Present Address		:	Alwar, Rajasthan
 Languages Known	:	English, Hindi, and Telugu
 
